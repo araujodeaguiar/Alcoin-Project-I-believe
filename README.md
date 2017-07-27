@@ -4,6 +4,7 @@ Can a cryptocurrency change a nation? I believe and will work for this.
 English and Portuguese.
 
 English
+
 Description of the problem and why of this project:
 
 A report on education released by the Organization for Economic Co-operation and Development (OECD) says that in Brazil, only 11% of the population between 25 and 64 years of age had access to a college. In high school it's not much different. A survey conducted by the NGO "Todos pela Educação"(All by Education), based on data from the "National Household Sample Survey" (PNAD) 2013, shows that high school education remains the Achilles heel of Brazilian education. According to the survey, almost half of young people can not complete high school before age 19, which is the age considered adequate to finish this stage.
