@@ -29,7 +29,7 @@ In view of the above, I put this collaborative project in support of development
 
 The importance for the world will be very great because this currency will be used to negotiate precious Brazilian assets such as Niobium, Graphene, Brazilian steel, Brazilian precious stones and other more wealth, with national companies that adopt it. Keep open doors of negotiation with a country like Brazil that, despite everything they have done wrong and still do, politicians, and all the robbery that has suffered, still grows and signals a great and upcoming future.
 
-From now on I thank all the collaborators, I count on you, so that together we can change a nation, with the grace of God.
+I thank all the contributors, I count on you, so that together we can change a nation with great ideas, a lot of honest work and with the grace of God.
 
 Best Regards
 
@@ -61,7 +61,7 @@ Diante do exposto é que coloco este projeto colaborativo para apoio dos colegas
 
 A importância para o mundo será muito grande, pois esta moeda servirá para negociações de ativos brasileiros preciosos como o Nióbio, o Grafeno, o aço brasileiro, as pedras preciosas brasileiras e outras riquezas mais, com empresas nacionais que a adotarem. Manter portas abertas de negociação com um país como o Brasil que, apesar de tudo de errado que fizeram e ainda fazem, os políticos, e de todo o roubo que sofreu, ainda cresce e sinaliza um grande e próximo futuro.
 
-Desde já agradeço a todos os colaboradores, conto com vocês, para que possamos juntos mudar uma nação, com a graça de Deus.
+Agradeço a todos os colaboradores, conto com vocês, para que possamos juntos mudar uma nação com grandes idéias, muito trabalho honesto e com a graça de Deus.
 
 Meus cumprimentos.
 
